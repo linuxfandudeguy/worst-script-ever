@@ -1,3 +1,20 @@
+// content warning: cuss words
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 import { JavaScriptFunctions } from 'fuck';
 import { the existence in all of time and reality and humanity } from 'shit';
 import { execution } from 'eee';
