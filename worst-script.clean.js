@@ -160,7 +160,7 @@ obuyoucated s**t;;;;;;;;;;;;;;;
 
 uziejkyfh4c5uirfjsaebwyhgd78uvrjtgfbryth67iyutryh78fuehgiuyth87iuyehti7ujryhiytujgeuijfyhvhugtrjtyhiufiujfy
 
-eval(my-ass)
+eval(my-a**)
 
 WebAssembly.VideoColorSpace("mywy7jgafest74uhcbvtfgyuvj5tfehst6y3u5")
 
