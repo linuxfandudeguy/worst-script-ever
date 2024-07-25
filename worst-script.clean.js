@@ -155,7 +155,7 @@ i ate WebSocket for lunch;
 i ate $.ajax for bulls***;
 
 
-obuyoucated shit;;;;;;;;;;;;;;;
+obuyoucated s**t;;;;;;;;;;;;;;;
 
 
 uziejkyfh4c5uirfjsaebwyhgd78uvrjtgfbryth67iyutryh78fuehgiuyth87iuyehti7ujryhiytujgeuijfyhvhugtrjtyhiufiujfy
